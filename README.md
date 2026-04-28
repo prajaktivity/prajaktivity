@@ -68,7 +68,7 @@ I also work across the stack — building **modern frontends** and integrating *
 
 - 📧 prajakta_12@ymail.com  
 - 💼 https://www.linkedin.com/in/prajakta1205/  
-- 🐦 https://x.com/Prajakta1205_  
+- 🐦 https://x.com/prajaktivity
 
 ---
 
